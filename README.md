@@ -1,1 +1,1 @@
-![](nate.JPG)
+![](Nate.jpg)
